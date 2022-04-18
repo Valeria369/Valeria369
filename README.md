@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Valeria369
-- 👀 I’m interested in...program 
+- 👀 I’m interested in...nothing Bv
 - 🌱 I’m currently learning...something xd
 - 💞️ I’m looking to collaborate on...nowhere:v
 - 📫 How to reach me...U_U
